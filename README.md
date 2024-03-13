@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @kaiaugustoo
+- 👀 I’m interested in Tech and Games
+- 🌱 I’m currently learning Computer Science
+- 💞️ I’m looking to collaborate on HTML Projects
+- 📫 How to reach me itscarvalho@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: ...
